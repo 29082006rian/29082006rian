@@ -1,6 +1,6 @@
 # Sobre mim
 - 🖐🖖 ola, meu nome é @29082006rian
-- 🇧🇷 sou Brasileiero e estudante do Colegio Maluf
+- 🇧🇷 sou Brasileiro e estudante do Colegio Maluf
 - 🚜 sonho em ser Agronômo
 
 
